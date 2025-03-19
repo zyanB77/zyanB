@@ -18,7 +18,7 @@ Bienvenidos al sitio oficial de **ZyanB**, donde el trap se siente en cada rima 
 ---
 
 ## 📩 **Contacto para Bookings**  
-📧 **Email:** [manager@zyanb.com](zyanb77official.com)  
+📧 **Email:** [zyanb77official@gmail.com](zyanb77official.com)  
 📸 **Instagram:** [@zyanb77offcial](#)  
 
-💥 **Trap real  ZyanB en la casa.** 💥  
+💥 **ZyanB .** 💥  
